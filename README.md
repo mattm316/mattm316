@@ -14,3 +14,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Hi, Matthew here! I'm currently working on improving my coding hard skill. I'm currently enrolled in a tech bootcamp. I'm naturally good at time managing, planning, and adaptability to change.
+I'm looking to collaborate with students of code and potential employers.
+I'm looking for help with career opportunites and pathways.
+Ask me about why I want to code.
+How to reach me: matthewmunozxd@gmail.com
+Pronouns: He/Him
+Fun fact:  I like to volunteer for Austin city events and my church. I love building personal and professional connections.
